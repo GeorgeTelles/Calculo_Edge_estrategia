@@ -1,0 +1,1 @@
+# Calculo_Edge_estrategia
